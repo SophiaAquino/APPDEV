@@ -29,3 +29,6 @@ Rock & Ruz
 ## Cast
 - Anna Castillo as Mia
 - Tamar Novas as Nico
+
+## Production
+Based on a story by Indiana Lista, the screenplay was penned by Ernest Riera, Miguel Ruz, Indiana Lista, Seanne Winslow, and Teresa Rosendoy. The film was produced by Miguel Ruz, with Ruz's partner at Rock & Ruz Jordi Roca serving as executive producer. Shooting locations included the port of Tarragona
