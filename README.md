@@ -10,7 +10,7 @@ Ernest Riera , Miguel Ruz, Indiana Lista, Seanne Winslow, Teresa Rosendoy
 **Story by**	
 Indiana Lista
 
-**Produced by** Miguel Ruz
+**Produced by**: Miguel Ruz
 
 **Starring** 
 Anna Castillo , Tamar Novas
