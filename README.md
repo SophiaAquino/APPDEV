@@ -32,3 +32,6 @@ Rock & Ruz
 
 ## Production
 Based on a story by Indiana Lista, the screenplay was penned by Ernest Riera, Miguel Ruz, Indiana Lista, Seanne Winslow, and Teresa Rosendoy. The film was produced by Miguel Ruz, with Ruz's partner at Rock & Ruz Jordi Roca serving as executive producer. Shooting locations included the port of Tarragona
+
+## Release
+Nowhere was made available to stream on Netflix on 29 September 2023. It reportedly commanded substantial attention on the platform, with over 24 million views after three days, and becoming the most viewed non-English language Netflix film of 2023
