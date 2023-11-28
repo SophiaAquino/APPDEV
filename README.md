@@ -3,10 +3,13 @@ Nowhere is a 2023 survival thriller film directed by Albert Pintó [ca] from a s
 
 **Directed by** 
 Albert Pintó
+
 **Screenplay by**	
 Ernest Riera , Miguel Ruz, Indiana Lista, Seanne Winslow, Teresa Rosendoy
+
 **Story by**	
 Indiana Lista
+
 **Produced by**
 Miguel Ruz
 **Starring** 
